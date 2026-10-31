@@ -1,0 +1,2 @@
+# VYNO-COIN
+WAIT FOR IT 
